@@ -1,0 +1,1 @@
+A red velvet cake is a cake with a dark red, bright red or red-brown color. It is traditionally prepared as a layer cake topped with cream cheese or cooked roux icing. The reddish color is achieved by adding red food coloring.
